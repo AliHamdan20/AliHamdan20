@@ -1,6 +1,6 @@
 - 👋 hello, I’m @AliHamdan20
 - 👀 I’m interested in Management Information System 
-- 🌱 I’m currently Second year MIS student
+- 🌱 I’m Senior MIS student
 - 💞️ I’m looking to share my educational skills in a real world
 - 📫 you can email me on aliiiiihamdan@gmail.com 
 
